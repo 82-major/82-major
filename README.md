@@ -1,16 +1,32 @@
-## Hi there 👋
 
-<!--
-**82-major/82-major** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=soulseobing&color=lightgrey&label=FEELM." />
+</p>
+⠀
+⠀
+<p align="center">
+ <img src="https://i.imgur.com/XRiB6rg.png"/>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⠀<p align="center">
+ —×—
+</p>
+
+⠀
+<p align="center">
+ ⠀⠀⠀⠀⠀⠀       ⠀⠀⠀⠀what 's ⠀the ⠀fuss ? 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"><a href="https://2seongz.straw.page/" target="_blank">s𝗍𝗋𝖺𝗐</a>𝗉𝖺𝗀𝖾 ⠀ ⠀⠀<a href="https://shosletters.atabook.org" target="_blank">a</a>𝗍𝖺 ⠀ ⠀⠀<a href="https://prns.cc/xzcjr" target="_blank">pr𝗈</a>𝗇𝗈𝗎𝗇𝗌
+ ⠀
+ ⠀
+
+<p align="center">
+⠀  sign ⠀<a href="https://leah365.atabook.org/" target="_blank">leah's</a>⠀ ata !! 
+⠀⠀
+<p align="center">
+ 
+</p>
+⠀
+⠀
+
+
