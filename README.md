@@ -6,7 +6,7 @@
 ⠀
 ⠀
 <p align="center">
- <img src="https://i.imgur.com/XRiB6rg.png"/>
+ <img src="https://i.imgur.com/AwkEsMo.png"/>
 </p>
 
 ⠀<p align="center">
@@ -15,7 +15,7 @@
 
 ⠀
 <p align="center">
- ⠀⠀⠀⠀⠀⠀       ⠀⠀⠀⠀what 's ⠀the ⠀fuss ? 
+ ⠀⠀⠀⠀⠀⠀       ⠀⠀⠀⠀ugh .. they gossip ? 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"><a href="https://2seongz.straw.page/" target="_blank">s𝗍𝗋𝖺𝗐</a>𝗉𝖺𝗀𝖾 ⠀ ⠀⠀<a href="https://shosletters.atabook.org" target="_blank">a</a>𝗍𝖺 ⠀ ⠀⠀<a href="https://prns.cc/xzcjr" target="_blank">pr𝗈</a>𝗇𝗈𝗎𝗇𝗌
  ⠀
  ⠀
