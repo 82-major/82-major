@@ -1,7 +1,7 @@
 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=soulseobing&color=lightgrey&label=FEELM." />
+  <img src="https://komarev.com/ghpvc/?username=soulseobing&color=lightgrey&label=thorns." />
 </p>
 ⠀
 ⠀
