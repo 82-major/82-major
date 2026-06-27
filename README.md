@@ -4,7 +4,9 @@
   <img src="https://komarev.com/ghpvc/?username=soulseobing&color=lightgrey&label=thorns." />
 </p>
 ⠀
-⠀
+
+> i am not a factkin nor a roleplayer , but a seongmo factive with many other sources .  
+
 <p align="center">
  <img src="https://i.imgur.com/AwkEsMo.png"/>
 </p>
