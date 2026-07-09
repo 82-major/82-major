@@ -1,30 +1,23 @@
 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=soulseobing&color=lightgrey&label=thorns." />
-</p>
-⠀
-
-> i am not a factkin nor a roleplayer , but a seongmo factive with many other sources .  
-
-<p align="center">
- <img src="https://i.imgur.com/AwkEsMo.png"/>
+  <img src="https://komarev.com/ghpvc/?username=soulseobing&color=E3BACC&label=thorns." />
 </p>
 
-⠀<p align="center">
- —×—
-</p>
-
+  
 ⠀
 <p align="center">
- ⠀⠀⠀⠀⠀⠀       ⠀⠀⠀⠀ugh .. they gossip ? 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"><a href="https://2seongz.straw.page/" target="_blank">s𝗍𝗋𝖺𝗐</a>𝗉𝖺𝗀𝖾 ⠀ ⠀⠀<a href="https://shosletters.atabook.org" target="_blank">a</a>𝗍𝖺 ⠀ ⠀⠀<a href="https://prns.cc/xzcjr" target="_blank">pr𝗈</a>𝗇𝗈𝗎𝗇𝗌
+<a href="https://x.com/rewzyktzyq">art creds .</a></p>
+<p align="center">
+ <img src="https://i.imgur.com/TNR6o1A.png"/>
+</p>
+
+</p>
+
+<p align="center">⠀⠀⠀⠀⠀<a href="https://2seongz.straw.page/" target="_blank">str𝖺𝗐pg</a> ⠀ ⠀⠀<a href="https://shosletters.atabook.org" target="_blank">ata</a>⠀⠀ ⠀⠀<a href="https://prns.cc/xzcjr" target="_blank">prnscc</a>  ⠀⠀⠀<a href="https://leah365.atabook.org/" target="_blank">leah's ata</a>
  ⠀
  ⠀
 
-<p align="center">
-⠀  sign ⠀<a href="https://leah365.atabook.org/" target="_blank">leah's</a>⠀ ata !! 
-⠀⠀
 <p align="center">
  
 </p>
