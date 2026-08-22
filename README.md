@@ -11,7 +11,7 @@
 ⠀
 
 ⠀⠀⠀
- ${\textsf{\color{#7A244F}𝙩𝙖𝙠𝙚 𝙢𝙚 𝙩𝙤 𝙩𝙝𝙚 𝙥𝙡𝙖𝙘𝙚,}}$ ${\textsf{\color{#854773}타오르는 이 𝘣𝘭𝘶𝘦}}$
+${\textsf{\color{#7A244F}𝙩𝙖𝙠𝙚 𝙢𝙚 𝙩𝙤 𝙩𝙝𝙚 𝙥𝙡𝙖𝙘𝙚,}}$ ${\textsf{\color{#854773}타오르는 이 𝘣𝘭𝘶𝘦}}$
 
 ${\textsf{\color{#854773}네게 버려져도 다시}}$ ${\textsf{\color{#876476}𝙞𝙡𝙡 𝙗𝙚 𝙮𝙤𝙪𝙧}}$ ${\textsf{\color{#AA6989}𝙚𝙫𝙚𝙧𝙜𝙡𝙤𝙬,}}$ ${\textsf{\color{#D678AA}𝙚𝙫𝙚𝙧𝙜𝙡𝙤𝙬,}}$ ${\textsf{\color{#CE89B5}𝙚𝙫𝙚𝙧𝙜𝙡𝙤𝙬.}}$
 
