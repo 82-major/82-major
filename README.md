@@ -1,7 +1,7 @@
 
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/8884c925bdf6d42a14197895b2d10b63/a3fa0dff5fd6e41d-ae/s1280x1920/fa3ba5f876147042f76866402cea9f2f7a544dcb.pnj" />
+  <img src="https://64.media.tumblr.com/f55fc02d99bfc1328bbf192882bd4fb0/a998844aae4bf8c4-d6/s2048x3072/8e9ee8f34d84b3cb1fe96a7bf735a8644818c7bd.pnj" />
 </p>
 
 <p align="center">
@@ -41,6 +41,6 @@ ${\textsf{\color{#854773}끝없는 낮일 테니}}$ ${\textsf{\color{#876476}�
 
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/4ecd79a1f4f7974640b0abd3734b2cee/a3fa0dff5fd6e41d-fa/s1280x1920/33f4cfd0bd3490f8ff82b29c9d336f172ad54265.pnj" />
+  <img src="https://64.media.tumblr.com/f55fc02d99bfc1328bbf192882bd4fb0/a998844aae4bf8c4-d6/s2048x3072/8e9ee8f34d84b3cb1fe96a7bf735a8644818c7bd.pnj" />
 </p>
 ⠀⠀
