@@ -36,7 +36,7 @@ ${\textsf{\color{#854773}끝없는 낮일 테니}}$ ${\textsf{\color{#876476}�
 ⠀
 ⠀
 ⠀
-<p align="center"> <a href="https://github.com/Leah-Leah-Leah-Leah " target="_blank">my wifey ♡(´ε｀ )</a>
+<p align="center"> <a href="https://github.com/Leah-Leah-Leah-Leah " target="_blank">my suho ♡(´ε｀ )</a>
 
   
  ⠀
