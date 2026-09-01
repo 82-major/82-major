@@ -1,9 +1,4 @@
 
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/f55fc02d99bfc1328bbf192882bd4fb0/a998844aae4bf8c4-d6/s2048x3072/8e9ee8f34d84b3cb1fe96a7bf735a8644818c7bd.pnj" />
-</p>
-
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=soulseobing&abbreviated=true&color=6D505E&label=ෆ" />
 </p>
@@ -40,7 +35,3 @@ ${\textsf{\color{#854773}끝없는 낮일 테니}}$ ${\textsf{\color{#876476}�
  ⠀
 
 
-<p align="center">
-  <img src="https://64.media.tumblr.com/f55fc02d99bfc1328bbf192882bd4fb0/a998844aae4bf8c4-d6/s2048x3072/8e9ee8f34d84b3cb1fe96a7bf735a8644818c7bd.pnj" />
-</p>
-⠀⠀
