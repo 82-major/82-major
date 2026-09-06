@@ -29,7 +29,7 @@ ${\textsf{\color{#854773}끝없는 낮일 테니}}$ ${\textsf{\color{#876476}�
  ⠀⠀
 </p>
 
-<p align="center">⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://2seongz.straw.page/" target="_blank">str𝖺𝗐pg</a> ⠀ ⠀⠀<a href="https://shosletters.atabook.org" target="_blank">ata</a>⠀⠀ ⠀⠀<a href="https://prns.cc/xzcjr" target="_blank">prnscc</a>  ⠀⠀⠀<a href="https://leah365.atabook.org/" target="_blank">leah's ata</a>
+<p align="center">⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://caninelust.straw.page/" target="_blank">str𝖺𝗐pg</a> ⠀ ⠀⠀<a href="https://shosletters.atabook.org" target="_blank">ata</a>⠀⠀ ⠀⠀<a href="https://prns.cc/xzcjr" target="_blank">prnscc</a>  ⠀⠀⠀<a href="https://leah365.atabook.org/" target="_blank">leah's ata</a>
 ⠀
 ⠀
 ⠀
