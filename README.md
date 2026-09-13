@@ -1,8 +1,5 @@
 
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=soulseobing&abbreviated=true&color=6D505E&label=ෆ" />
-</p>
-⠀⠀
+
 ⠀
 ⠀⠀
 ⠀
