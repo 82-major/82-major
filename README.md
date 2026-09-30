@@ -35,6 +35,9 @@ ${\textsf{\color{#854773}끝없는 낮일 테니}}$ ${\textsf{\color{#876476}�
 ⠀
 <p align="center"> <a href="https://github.com/Leah-Leah-Leah-Leah " target="_blank">my suho ♡(´ε｀ )</a>
 
+
+
+im often studying nowadays for my highschool-leaving exams/finals . if u talk to me on ponytown pls dont expect replies . . my social battery is frequently low and i may be too tired to keep up conversations . thanks ! 
   
  ⠀
 
