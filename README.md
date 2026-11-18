@@ -1,1 +1,5 @@
-<p align="centre"> hi its sho ! my mental health has been declining to the point that it has also affected me physically. hence, i may be more inactive on ponytown. if u see me online, i suggest convos to be refrained unless i initiate one, because my social battery is terribly low nowadays. if ure one of my friends and u want to keep in touch, please add my discord (2am.drive) as i am the most active there. i do not reply on most of my other socials. please do not expect me to get back on ponytown if ive been gone for a while, and please do not ask me to return. have a good day  ♡ </p>
+<p align="center"> idk if im coming back to pt </p>
+ ⠀⠀
+</p>
+
+<p align="center"> <a href="https://promiseyouth.straw.page/" target="_blank">str𝖺𝗐pg</a> ⠀ ⠀⠀<a href="https://shosletters.atabook.org" target="_blank">ata</a>⠀⠀ ⠀⠀<a href="https://prns.cc/xzcjr" target="_blank">prnscc</a>  </p>
